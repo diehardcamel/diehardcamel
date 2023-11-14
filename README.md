@@ -1,3 +1,5 @@
+### i hope you like jokes pls don't ruin my grade 🙏
+
 ### In the ancient halls of knowledge vast,
 ### Where numbers dance and theories cast,
 ### Two scholars stood, Prellberg and Lewis,
