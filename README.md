@@ -1,5 +1,4 @@
-### Hi there 👋
-
+### hi professors what do you think of camels? pretty cool innit
 <!--
 **diehardcamel/diehardcamel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
