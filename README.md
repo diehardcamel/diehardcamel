@@ -1,4 +1,4 @@
-Hello there, I am Aryan. I study mathematics and queen mary and I like to code python. 
+Hello there, I am Aryan. I study mathematics at Queen Mary University of London and I like to code python. 
 
 
 
