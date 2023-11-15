@@ -1,3 +1,8 @@
+Hello there, I am Aryan. I study mathematics and queen mary and I like to code python. 
+
+
+
+
 # i hope you like jokes pls don't ruin my grade 🙏
 
 ### In the ancient halls of knowledge vast,
